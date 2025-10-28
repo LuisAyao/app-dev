@@ -10,4 +10,4 @@ Universal expanded the series to include the spin-off film Hobbs & Shaw (2019), 
 
 The series has been commercially successful. It is Universal's biggest franchise and the eighth highest-grossing film series of all-time, with a combined gross of over $7 billion.[2] Critical reception for the first four films was mixed until the fifth and later films, which were more positively received.
 ### Characters
--Dominic Toretto, Letty Ortiz, Mia Toretto, Roman Pearce, Tej Parker, Han Lue, Ramsey, Deckard Shaw, Brian O'Conner, Gisele Yashar, Luke Hobbs, Vince, Tego Leo, Rico Santos, Leon, Jesse
+- Dominic Toretto, Letty Ortiz, Mia Toretto, Roman Pearce, Tej Parker, Han Lue, Ramsey, Deckard Shaw, Brian O'Conner, Gisele Yashar, Luke Hobbs, Vince, Tego Leo, Rico Santos, Leon, Jesse
